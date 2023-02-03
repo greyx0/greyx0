@@ -14,4 +14,4 @@ empty for now :(
 
 [Wattpad] (...)
 
-[Email] (greycombattelli@gmail.com)
+Email: greycombattelli@gmail.com
