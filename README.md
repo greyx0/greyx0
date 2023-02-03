@@ -10,8 +10,10 @@ empty for now :(
 
 ## CONTACTS
 
-[Instagram] (https://instagram.com/greyrx_0?igshid=ZDdkNTZiNTM=)
+[Instagram](https://instagram.com/greyrx_0?igshid=ZDdkNTZiNTM=)
 
-[Wattpad] (...)
+[Wattpad](...)
 
 Email: greycombattelli@gmail.com
+
+![image](https://github.com/greyx0/greyx0/blob/main/ezgif-3-0c9c5e934e.gif)
