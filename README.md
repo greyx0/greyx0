@@ -12,6 +12,6 @@ empty for now :(
 
 [Instagram](https://instagram.com/greyrx_0?igshid=ZDdkNTZiNTM=)
 
-[Wattpad](...)
+[Wattpad](https://www.wattpad.com/user/Grey_rx0)
 
 ![image](https://github.com/greyx0/greyx0/blob/main/ezgif-3-0c9c5e934e.gif)
