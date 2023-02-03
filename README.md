@@ -14,6 +14,4 @@ empty for now :(
 
 [Wattpad](...)
 
-Email: greycombattelli@gmail.com
-
 ![image](https://github.com/greyx0/greyx0/blob/main/ezgif-3-0c9c5e934e.gif)
