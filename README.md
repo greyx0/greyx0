@@ -9,6 +9,7 @@ Coming soon!
 
 ## CONTACTS
 
+[Instagram](https://instagram.com/grey_renoux?igshid=MzRIODBiNWFIZA==)
 [Wattpad](https://www.wattpad.com/user/Grey_rx0)
 
 ![image](ezgif-3-2b2018d2a7.gif)
