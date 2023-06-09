@@ -1,16 +1,13 @@
 # ABOUT ME
 
-Hi! My name is Grey Combattelli, you can find me by some variation of the username grey_rx0 pretty much everywhere. I am a transmasculine queer and polyamorous person. I've been an avid gamer since I can remember and I'm finally starting to study and work in the sector as a Game Designer. I also like writing, you can check some of my work below.
-
-Pronouns: he/they 
-
+Hello there! My name is Grey Combattelli. I am a transmasculine, bisexual and polyamorous person. 
+I'm a avid gamer and I've been passionate about games and their making process for as long as I can remember, so I decided to persue my passion and interest and go to TheSign Academy to study Game Design. I also write as a hobby, feel free to check some of my work below. 
+ 
 ## WORKS
 
-empty for now :(
+Coming soon!
 
 ## CONTACTS
-
-[Instagram](https://instagram.com/greyrx_0?igshid=ZDdkNTZiNTM=)
 
 [Wattpad](https://www.wattpad.com/user/Grey_rx0)
 
