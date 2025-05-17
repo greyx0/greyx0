@@ -12,6 +12,6 @@ Can be checked either here or on itch.io!
 
 [Itch.io](https://victor-renoux.itch.io)
 [Instagram](https://www.instagram.com/greyv_renoux)
-[Wattpad]((https://www.wattpad.com/user/victor_renoux_42))
+[Wattpad](https://www.wattpad.com/user/victor_renoux_42)
 
 ![image](ezgif-3-2b2018d2a7.gif)
