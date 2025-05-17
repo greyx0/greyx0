@@ -1,15 +1,17 @@
 # ABOUT ME
 
-Hello there! My name is Grey Combattelli. I am a transmasculine, bisexual and polyamorous person. 
-I'm a avid gamer and I've been passionate about games and their making process for as long as I can remember, so I decided to persue my passion and interest and go to TheSign Academy to study Game Design. I also write as a hobby, feel free to check some of my work below. 
+Hello there! My name is G. Victor Renoux.
+I've been passionate about games and their making process for as long as I can remember, so I decided to persue my passion and interest and go to TheSign Academy to study Game Design.
+I'll be using Github for all repos of my personal and professional project, so feel free to have a look around!
  
 ## WORKS
 
-Coming soon!
+Can be checked either here or on itch.io!
 
 ## CONTACTS
 
-[Instagram](https://instagram.com/grey_renoux?igshid=MzRIODBiNWFIZA==)
-[Wattpad](https://www.wattpad.com/user/Grey_rx0)
+[Itch.io](https://victor-renoux.itch.io)
+[Instagram](https://www.instagram.com/greyv_renoux)
+[Wattpad]((https://www.wattpad.com/user/victor_renoux_42))
 
 ![image](ezgif-3-2b2018d2a7.gif)
